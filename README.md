@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning mobile
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me https://www.facebook.com/profile.php?id=100024540585757
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm just a guy like Anime. Nothing special
 
